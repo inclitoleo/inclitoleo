@@ -1,3 +1,5 @@
+👨🏾‍💻 ♒ 🐘 "Open mind for a different view and nothing else matters".
+
 - 👋 Hi, I’m @inclitoleo (LeoCosta)
 - 👀 I’m interested in developer, taekowndo, superhero cartoon and musics
 - 🌱 I’m currently learning to be the best with people, helping more and having more quality of life.
